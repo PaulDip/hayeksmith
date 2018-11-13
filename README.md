@@ -1,0 +1,9 @@
+# BONJOUR A TOUS LES AMIS, POUR CEUX QUI ME CONNAISSENT PAS VOS GRANDS MERES LES...
+
+# LIEN GITHUB PAGES = https://hayeksmith.github.io/hayeksmith/
+
+# POURQUOI MBAPPE POURQUOI TU NOUS LAISSE PAS TRANQUILLE
+
+# COMME DHAB, BUNDLE INSTALL => DB MIGRATE => DB SEED BLA BLA
+
+# EQUIPE - @axelletrt - @Stephane Mlv - @Victorian Roques - @ambroiseau - @Arnaud - @PaulDIP - @Nicolas G - @MPABBE - @MOHAMED HENNI
